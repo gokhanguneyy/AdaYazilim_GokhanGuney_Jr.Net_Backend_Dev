@@ -1,0 +1,1 @@
+# AdaYazilim_GokhanGuney_Jr.Net_Backend_Dev
